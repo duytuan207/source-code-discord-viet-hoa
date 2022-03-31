@@ -1,1 +1,1 @@
-## Cầu phật đừng lỗi, đừng bug. Con xin cúi đầu khép đít lạy các cụ ạ :(
+##file dc viet hoa by ndteditor
